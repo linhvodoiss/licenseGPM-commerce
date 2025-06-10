@@ -1,0 +1,1 @@
+# licenseGPM-commerce
